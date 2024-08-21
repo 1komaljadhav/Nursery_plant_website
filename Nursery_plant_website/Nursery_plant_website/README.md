@@ -1,1 +1,0 @@
-# Houseplant-shop-project
